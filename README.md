@@ -12,7 +12,7 @@ Please check out the original copy first [here](https://www.google.com/url?sa=t&
 
 Used `124M` small model.
 
-Sample result:
+## Sample result:
 
 Sandy, you need to get that nut off my back. [shivering]
 
