@@ -12,7 +12,7 @@ Please check out the original copy first [here](https://www.google.com/url?sa=t&
 
 Used `124M` small model.
 
-## Sample result:
+## Sample result 1:
 
 Sandy, you need to get that nut off my back. [shivering]
 
@@ -105,3 +105,119 @@ Gary?! [SpongeBob gets up, desperate, and runs into his house, carrying the jar 
 SpongeBob! [SpongeBob sees the peanut chocolate, looks in the jar, and pours it in a bucket. Then he puts his head in the bucket and starts eating the chocolate. Gary slithers towards SpongeBobs house, still crying]
 
 SpongeBobs right! [SpongeBob notices that some of the peanut chocolate is still in the bucket, so he takes it out. Then he puts the lid on the bucket, so that no
+
+## Sample Result 2
+
+[Spongebob is watching TV while Gary is playing with a rock.]
+
+Peek-a-boo! [Gary and SpongeBob stop playing and start snoring.]
+
+Meow.  [laughs]
+
+[SpongeBob lifts the rock, but the rock starts going down. SpongeBob and Patrick get up.]
+
+Oh, hey, guys. Just wanted to let you all have to- [Patrick gets up and takes out a leash.]
+
+Can we go now?  Uh, dont worry. [SpongeBob and Patrick walk out of the restaurant.]  [laughs]
+
+[Gary and SpongeBob stop in front of a billboard that says "Gary &amp; Patrick Snail Funeral Dining"; Patrick whimpers.]
+
+[offscreen] Meow.  See you tomorrow. [walks out]
+
+[Gary and SpongeBob walk in the sand.]
+
+Gary, another goodbye. [walks out]
+
+G-7! [gets hit by sand and is buried in sand]
+
+Meow.  [laughs]
+
+You and me in here, loathe each other. [cries and runs off while Patrick talks gibberish]
+
+[picks up Gary and runs toward him] Gary, you morons should be ashamed. Snail prison is not for the sake of any punishment or sake of any length of my life.
+
+[offscreen] N-1!  Oh, Patrick, if you think this is funny, I will tear you apart.  Oh, yeah, like that. [snorts]
+
+No, no, really. It will be so much fun, we wont know what prison is.
+
+[offscreen] Meow.  Theres no such thing as a proper punishment for such a disgusting display of pet ownership. [both laugh]
+
+[runs off and jumps on Patrick] Come on, guys. [both laugh more]
+
+[runs back and jumps on Squidward]
+
+Hey, Squidward!  [holds on to a leash]
+
+Stay inside so I wont get hurt. [holds on to a leash]
+
+No, no, dont get hurt.  [holds on to a leash]
+
+Okay, okay, okay, okay. [Garys eyes start to water up.]
+
+[offscreen] M-1!  SpongeBob, Im your primary assistant
+
+[Garys eyes are starting to water up.]
+
+[SpongeBob holds on to a leash]
+
+Okay, Gary, I can go. [goes inside the box and Garys eyes are watery-zy]
+
+Come on, SpongeBob. [tries to open the box open to find it closed]
+
+I can- [gasps] Oh, no. [gasps] Oh no. Oh no.
+
+[opens the box and drops a bowl of cereal]
+
+Oh no. Its closed. What is it?
+
+[offscreen] Its... [gasps]
+
+The box is... [the box is about to be opened] ...closed.
+
+[offscreen] Oh, Gary, Ill never get out of here again. [Garys eyes are watery-zy again.]
+
+[sighs]  [offscreen] Gary, what are you doing? Why... [groans and closes the box]
+
+[offscreen] Meow.  [talks through his phone while holding on to a leash]
+
+Well, this is it. [Garys eyes are still watery-zy.]
+
+Meow?
+
+Gary, I got to tell you something.
+
+Meow?
+
+Oh, yeah, you. Ive got to tell you something.
+
+[offscreen] Meow.
+
+[talks through his spatula while holding on to a leash]
+
+Well, this is it. [Garys eyes are still watery-zy again.]
+
+[talks through the ball of gum while holding on to an umbrella; he drops it on the ground and talks gibberish] [screams]
+
+[Garys eyes are still watery-y again.]
+
+[yelps and takes the umbrella] Oh, Gary, this is more trouble than it is worth.
+
+[growls and sulks; he walks away]
+
+[turns on the light]
+
+Good thing I have this one.
+
+[Gary does not turn on and is immediately dashed with dirt]
+
+[Gary slithers through the mud. SpongeBob looks down and sees a trail of sludge. He turns and sees Patrick, who is sitting on a couch, looking at the screen with his eyes shut. Patrick walks up to SpongeBob and reveals some weird stuff about himself.]
+
+[offscreen] Meow!
+
+[Patrick lifts his head through the mud and shows a bunch of weird things on TV. SpongeBob and Patrick laugh. SpongeBob and Patrick continue laughing.]  [offscreen]
+
+Meow!
+
+[Patrick lifts his head through the mud and shows another strange trail of slime. They laugh at this.]
+
+[offscreen] Meow! [Patrick shakes his head and shows a sample of the slime on the
