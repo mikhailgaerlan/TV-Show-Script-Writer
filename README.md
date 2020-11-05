@@ -12,6 +12,8 @@ Please check out the original copy first [here](https://www.google.com/url?sa=t&
 
 Used `124M` small model.
 
+Model files [here](https://drive.google.com/file/d/1-1gZRQYBipyoGdDJlL6AXQuCmvs3o7pX/view?usp=sharing).
+
 ## Sample result 1:
 
 Sandy, you need to get that nut off my back. [shivering]
@@ -106,9 +108,9 @@ SpongeBob! [SpongeBob sees the peanut chocolate, looks in the jar, and pours it 
 
 SpongeBobs right! [SpongeBob notices that some of the peanut chocolate is still in the bucket, so he takes it out. Then he puts the lid on the bucket, so that no
 
-## Sample Result 2
+## Sample result 2:
 
-[Spongebob is watching TV while Gary is playing with a rock.]
+**Prompt**: [Spongebob is watching TV while Gary is playing with a rock.]
 
 Peek-a-boo! [Gary and SpongeBob stop playing and start snoring.]
 
