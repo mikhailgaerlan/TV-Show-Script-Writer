@@ -12,7 +12,7 @@ Please check out the original copy first [here](https://www.google.com/url?sa=t&
 
 Used `124M` small model.
 
-Model files [here](https://drive.google.com/file/d/1-1gZRQYBipyoGdDJlL6AXQuCmvs3o7pX/view?usp=sharing)
+Model files [here](https://drive.google.com/file/d/1-1gZRQYBipyoGdDJlL6AXQuCmvs3o7pX/view?usp=sharing).
 
 ## Sample result 1:
 
